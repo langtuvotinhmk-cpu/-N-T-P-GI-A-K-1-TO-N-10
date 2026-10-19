@@ -1,0 +1,2 @@
+# -N-T-P-GI-A-K-1-TO-N-10
+APP TRO LY DAY TOAN 5.0
